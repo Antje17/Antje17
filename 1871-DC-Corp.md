@@ -176,3 +176,64 @@ the laws of said District.
 pened of Sec. 26. And be tt further enacted, That there shall be appointed b- Appointment, the President of the United States, by and with the advice and consent powers and du- of the Senate, a board of health for said District, to consist of five per- . sons, whose duty it shall be to declare what shall be deemed nuisances
 
 injurious to health, and to provide for the removal thereof; to make and
+
+
+FORTY-FIRST CONGRESS. Sess. III. Cn. 62. 1871. 425
+
+enforce regulations to prevent domestic animals from running at large in Board of health. the cities of Washington and Georgetown ; to prevent the sale of un-
+
+wholesome food in said cities; and to perform such other duties as shall
+
+be imposed upon said board by the legislative assembly.
+
+Sec. 27. And be it further enacted, That the offices and duties of reg- _ Register of ister of wills, recorder of deeds, United States attorney, and United wills, recorder of States marshal for said District shall remain as under existing laws till Attorney and modified by act of Congress ; but said legislative assembly shall have marshal. power to impose such additional duties upon said officers, respectively, as may be necessary to the due enforcement of the laws of said District.
+
+Sec. 28. And be it further enacted, ‘That the said legislative assembly Corporations; shall have power to create by general law, modify, repeal, or amend, within said District, corporations aggregate for religious, charitable, edu- cational, industrial, or commercial purposes, and to define their powers and liabilities: Provided, That the powers of corporations 80 created _ limited to the shall be limited to the District of Columbia. District.
+
+Sec. 29. And be it further enacted, That the legislative assembly Paupers. shall define by law who shall be entitled to relief as paupers in said Dis- trict, and shall provide by law for the support and maintenance of such paupers, and for that purpose shall raise the money necessary by taxa- tion.
+
+Szc. 80. And be tt further enacted, That the legislative assembly shall Ministerial of. have power to provide by law for the election or appointment of such ficers. ministerial officers as may be deemed necessary to carry into effect the laws of said District, to prescribe their duties, their terms of office, and the rate and manner of their compensation. .
+
+Sec. 31. And be it further enacted, That the governor, secretary, and Governor, sec- other officers to be appointed pursuant to this act, shall, before they act eyarey Ge. to as such, respectively, take and subscribe an oath or affirmation before a firmation. judge of the supreme court of the District of Columbia, or some justice of the peace in the limits of said District, duly authorized to administer oaths or affirmations by the laws now in force therein, or before the Chief Justice or some associate justice of the Supreme Court of the Unit- ed States, to support the Constitution of the United States, and faithfully to discharge the duties of their respective offices ; which said oaths, when Oaths to be so taken, shall be certified by the person before whom the same shall have **ttified, &. been taken; and such certificates shall be received and recorded by the said secretary among the executive proceedings ; and all civil officers in said District, before they act as such, shall take and subscribe a like oath or affirmation before the said governor or secretary, or some judge or jus- tice of the peace of the District, who may be duly commissioned and qualified, or before the Chief Justice of the Supreme Court of the United States, which said oath or affirmation shall be certified and transmitted by the person administering the same to the secretary, to be by him recorded as aforesaid ; and afterward the like oath or affirmation shall be taken and subscribed, certified and recorded in such manner and form as may be prescribed by law.
+
+Sc. 32. And be tt further enacted, That the governor shall receive an Salaries of annual salary of three thousand dollars ; and the secretary shall receive an governor and annual salary of two thousand dollars, and that the said salaries shall be ®t#Y- paid quarter-yearly, from the dates of the respective appointments, at the treasury of the United States; but no payment shall be made until said officers shall have entered upon the duties of their respective appoint- ments. The members of the legislative assembly shall. be entitled to Pay of mem- receive four dollars each per day during their actual attendance at the bersof assembly. session thereof, and an additional allowance of four dollars per day shall be paid to the presiding officer of each house for each day he shall so preside. And a chief clerk, one assistant clerk, one engrossing and one Clerks and
+
+enrolling clerk, and a sergeant-at-arms may be chosen for each house; ses anteat-
+
+426 FORTY-FIRST CONGRESS. Szss. I. Cu. 62. 1871.
+
+and the chief clerk shall receive four dollars per day, and the said other officers three dollars per day, during the session of the legislative assem- Sessions of bly: Provided, That there shall be but one session of the legislative legislative as- assembly annually, unless, on an extraordinary occasion, the governor y shall think proper to call the legislative assembly together. And the Disbursements Z0Vernor and secretary of the District shall, in the disbursement of all ofappropriations mon¢ys appropriated by Congress and intrusted to them, be governed by Congress. solely by the instructions of the Secretary of the Treasury of the United States, and shall semiannually account to the said Secretary for the man- ner in which the aforesaid moneys shall have been expended; and no expenditure shall be made by the said legislative assembly of funds ap- propriated by Congress, for objects not especially authorized by acts of Congress making the appropriations, nor beyond the sums thus appro-
+
+priated for such objects. First sessionof Sgc. 33. And be tt further enacted, That the legislative assembly of legislative a8- — the District of Columbia shall hold its first session at such time and place
+
+sembly, : ° eae ; j y in said District as the governor thereof shall appoint and direct. tha rents te Sec. 34, And be it further enacted, That a delegate to the House of
+
+Representatives, Representatives of the United States, to serve for the term of two years, who shall be a citizen of the United States and of the District of Colum- bia, and shall have the qualifications of a voter, may be elected by the. voters qualified to elect members of the legislative assembly, who shall be entitled to the same rights and privileges as are exercised and enjoyed by the delegates from the several Territories of the United States to the House of Representatives, and shall also be a member of the committee for the District of Columbia; but the delegate first elected shall hold his seat only during the term of the Congress to which he shall be clected. The first election shall be held at the time and places and be .conducted in such manner as the elections for members of the House of Represen- tatives are conducted ; and at all subsequent elections the time and places and the manner of holding the elections shall be prescribed by
+
+Plurality to law. The person having the greatest number of legal votes shall be de-
+
+elect. clared by the governor to be duly elected, and: a certificate thereof shall
+
+and rntitution be given accordingly; and the Constitution and all the laws of the Unit-
+
+in foree in ed States, which are not locally inapplicable, shall have the same force
+
+the District. and effect within the said District of Columbia as elsewhere within the oo, United States. _
+
+aemtbursing Of Suc: 85. And be it further enacted, That all officers to be appointed
+
+curity approved by the President of the United States, by and with the advice and con-
+
+by Sooretary of sent of the Senate, for the District of Columbia, who, by virtue of the ¥ provisions of any law now existing, or which may be enacted by Con- gress, are required to give security for moneys that may be intrusted to them for disbursement, shall give such security at such time and in such
+
+manner as the Secretary of the Treasury may prescribe.
+
+pre nluation of Sc. 36. And be it further enacted, That there shall be a valuation
+
+Bnked ‘states in taken in the District of Columbia of all real estate belonging to the Unit-
+
+the District ex- ed States in said District, except the public buildings, and the grounds
+
+cep, every bo, which have been dedicated to the public use as parks and squares, at years, and return Jeast once in five years, and return thereof shall be made by the governor thereof made. to the President of the Senate and Speaker of the House of Represent- atives on the first day of the session of Congress held after such valuation shall be taken, and the aggregate of the valuation of private property in Valuation to said District, whenever made by the authority of the legislative assembly, be made b shall be reported to Congress by the governor: Provided, That all valua- who. tions of property belonging to the United States shall be made by such persons as the Secretary of the Interior shall appoint, and under such
+
+regulations as he shall prescribe.
