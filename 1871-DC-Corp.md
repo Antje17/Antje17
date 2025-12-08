@@ -42,3 +42,53 @@ large on their journal, and proceed to reconsider it. If, after such re- conside
 Sec. 4, And be it further enacted, That there shall be appointed by the President, by and with the advice and consent of the Senate, a secretary of said District, who shall reside therein and’ possess the qualification of an elector, and shall hold his office for four years, and until his successor shall be appointed and qualified; he shall record and preserve all laws and proceedings of the legislative assembly hereinafter constituted, and all the acts and proceedings of the governor in his executive department ; he shall transmit one copy of the laws and journals of the legislative as- sembly within thirty days after the end of each session, and one copy of the executive proceedings and official correspondence semiannually, on the first days of January and July in each ‘year, to the President of the United States, and four copies of the Jaws to the President of the Senate and to the Speaker of the House of Representatives, for the use of Con- gress; and in case of the death, removal, resignation, disability, or ab- sence, of the governor from the District, the secretary shall be, and he is hereby, authorized and required to execute and perform all the powers and duties of the governor during such vacancy, disability, or absence, or until another governor shall be duly appointed and qualified to fill such vacancy. And in case the offices of governor and secretary shall both become vacant, the powers, duties, and cmoluments of the office of gov- ernor shall devolve upon the presiding officer of the council, and in case that office shall also be vacant, upon the presiding officer of the house of delegates, until the office shall be filled by a new appointment.
 
 Suc. 5. And be tt further enacted, That legislative power and authority in said District shall be vested in a legislative assembly as hercinafter provided. The assembly shall consist of a council and house of delegates. The council shall consist of eleven members, of whom two shall be resi- dents of the city of Georgetown, and two residents of the county outside of the cities of Washington and Georgetown, who shall be appointed by the President, by and with the advice and consent of the Senate, who shall have the qualification of voters as hereinafter prescribed, five of whom shall be first appointed for the term of one year, and six for the period of two years, provided that all eubsequent appointments shall be for the term of two years. The house of delegates shall consist of twenty- two members, possessing the same qualifications as prescribed for the members of the council, whose term of service shall continue one year. An apportionment shall be made, as nearly equal as practicable, into eleven districts for the appointment of the council, and into twenty-two districts for the election of delegates, giving to each section of the Dis- trict representation in the ratio of its population as nearly as may be. And the members of the council and of the house of delegates shall re- side in and be inhabitants of the districts from which they are appointed or elected, respectively. For the purposes of the first election to be held under this act, the governor and judges of the supreme court of the Dis- trict of Columbia shall designate the districts for members of the house of delegates, appoint a board of registration and persons to superintend
+
+TY-FIRST CONGRESS. Szss. UE. Ca. 62. 1871. 421
+
+the election and the returns thereof, prescribe the time, places, and man- _ Elections of
+
+ner of conducting such election, and make all needful rules and regula- delegates;
+
+tions for carrying into effect the provisions of this act not otherwise
+
+herein provided for : Provided, That the first election shall be held within _ when to be
+
+sixty days from the passage of this act. In the first and all subsequent held.
+
+elections the persons having the highest number of legal votes for the ee ety to
+
+house of delegates, respectively, shall be declared by the governor duly
+
+elected members of said house. In case two or more persons voted for New election,
+
+shall have an equal number of votes for the same office, or if a vacancy if vote is equal, ; or in case of va-
+
+shall occur in the house of delegates, the governor shall order a new cancy.
+
+election. And the persons thus appointed and elected to the legislative Time and
+
+assembly shall meet at such time and at such place within the District as place of meeting.
+
+the governor shall appoint; but thereafter the time, place, and manner of
+
+holding and conducting all elections by the people, and the formation of
+
+the districts for members of the council and house of delegates, shall be
+
+prescribed by law, as well as the day of the commencement of the regular Sessions not to
+
+sessions of the legislative assembly : Provided, That no session in any one exceed sixty the
+
+year shall exceed the term of sixty days, except the first session, which ft
+
+may continue one hundred days.
+
+Sec. 6. And be tt further enacted, That the legislative assembly shall Part of dis- have power to divide that portion of the District not included in the trict may Be div corporate limits of Washington or Georgetown into townships, not ships. exceeding three, and create township officers, and prescribe the duties poynship of thereof; but all township officers shall be clected by the people of the ficers. P townships respectively.
+
+Sec. 7. And be it further enacted, That all male citizens of the United Voters, their States, above the age of twenty-one years, who shall have been actual qualifications, residents of said District for three months prior to the passage of this " act, except such as are non compos mentis and persons convicted of infamous crimes, shall be entitled to vote at said election, in the election district or precinct in which he shall then reside, and sball have so resided for thirty days immediately preceding said election, and shall’ be eligible to any offize within the said District, and for all subsequent elections twelve months’ prior residence shall be required to constitute _ Right of suf- a voter; but the legislative assembly shall have no right to abridge or frage not to be limit the right of suffrage. eee
+
+Sec. 8. And be tt further enacted, That no person who has been or Certain per- hereafter shall be convicted of bribery, perjury, or other infamous crime, for disqualified nor any person who has been or may be a collector or holder of public ship in the as- moneys who shall not have accounted for and paid over, upon final judg- sembly or hold- ment duly recovered acconmding to law, all such moneys due from him, in8 office: shall be eligible to the legislative assembly or to any office of profit or trust in said District. oO
+
+Src. 9. And be it further enacted, That members of the legislative Oath of mem- assembly, before they enter upon their official duties, shall take and bers orci. subscribe the following oath or affirmation: “I do solemnly swear (or . affirm) that I will support the Constitution of the United States, and will faithfully discharge the duties of the office upon which I am about to enter; and that I have not knowingly or intentionally paid or con- tributed anything, or made any promise in the nature of a bribe, to directly or indirectly influence any vote at the election at which I was. chosen to fill the said office, and jhave not accepted, nor will I accept, or receive, directly or indirectly, any money or other valuable thing for any vote or influence that I may give or withhold on any bill, resolution, or appropriation, or for any other official act.” Any member who shall Refusioa refuse to take the oath hercin prescribed shall forfeit his office, and every fhe person who shall be‘convicted of having sworn falsely to or of violating False oath, &. hhis said oath shall forfeit his office and be disqualified thereafter from to disquelily and holding any office of profit or trust in said District, and shall be Pees:
+
+422
