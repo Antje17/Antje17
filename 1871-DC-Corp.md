@@ -1,3 +1,27 @@
+![Screenshot_20251208-211457_Samsung Notes.jpg](https://github.com/user-attachments/assets/ae3a7ab3-0682-4799-98e5-cbb250c59fd6)
+
+![Screenshot_20251208-211513_Samsung Notes.jpg](https://github.com/user-attachments/assets/e0e03a79-8cc9-4bb9-a24e-3f3553861e8b)
+
+![Screenshot_20251208-211523_Samsung Notes.jpg](https://github.com/user-attachments/assets/b76ae018-0040-49fd-807b-abee6d6fb6f0)
+
+![Screenshot_20251208-211534_Samsung Notes.jpg](https://github.com/user-attachments/assets/1ddd2ce6-7cd7-4a49-b5c4-26d96687f04f)
+
+![Screenshot_20251208-211543_Samsung Notes.jpg](https://github.com/user-attachments/assets/7257d0ac-7fed-48ef-a92d-b674cf87505e)
+
+![Screenshot_20251208-211553_Samsung Notes.jpg](https://github.com/user-attachments/assets/e41085d3-642a-45c7-8355-3ee48d599931)
+
+![Screenshot_20251208-211607_Samsung Notes.jpg](https://github.com/user-attachments/assets/27fe6634-4284-42bd-93be-b680c982e2ea)
+
+![Screenshot_20251208-211618_Samsung Notes.jpg](https://github.com/user-attachments/assets/95816b03-bf99-4d59-946a-fd9155e163f8)
+
+![Screenshot_20251208-211629_Samsung Notes.jpg](https://github.com/user-attachments/assets/ec9aad17-72c4-4d26-af46-260b5916b8a9)
+
+![Screenshot_20251208-211643_Samsung Notes.jpg](https://github.com/user-attachments/assets/253f0a62-226c-4df6-a4ad-fbcbb261194c)
+
+![Screenshot_20251208-211654_Samsung Notes.jpg](https://github.com/user-attachments/assets/1cc324e2-ee7f-4e59-844d-2f971c13530d)
+
+---
+
 FORTY-FIRST CONGRESS. Sess. III. Ca. 61, 62. 1871. 419
 
 For expenses under the neutrality act, twenty thousand dollars. Neutrality. For expenses in d under i i f the S f 1818, ch. 88. or Pp curred under instructions of the Secretary 0 State, vol. i. p. 447.
