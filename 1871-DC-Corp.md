@@ -107,3 +107,72 @@ Suc. 12. And be it further enacted, That every bill shall be read at large on th
 Sec. 13. And be tt further enacted, That no moncy shall be drawn from the treasury of the District, except in pursuance of an appropria- tion made by law, and no bill making appropriations for the pay or sal- aries of the officers of the District government shall contain any pro- visions on any other subject.
 
 Sec. 14. And be it further enacted, That each legislative assembly shall provide for all the appropriations necessary for the ordinary and contingent expenses of the government of the District until the expira- tion of the first fiscal quarter after the adjournment of the next regular session, the aggregate amount of which shall not be increased without a vote of two thirds of the members elected or appointed to each house as herein provided, nor exceed the amount of revenue authorized by law to be raised in such time, and all appropriations, general or special, requiring money to be paid out of the District treasury, from funds belonging to the District, shall end with such fiscal quarter ; and no debt, by which the aggregate debt of the District shall exceed five per cent. of the assessed property of the District, shall be contracted, unless the law authorizing the same shall at a general election have been sub- mitted to the people and have received a majority of the votes cast for members of the legislative assembly at such election. The legislative assembly shall provide for the publication of said law in at least two newspapers in the District for three months, at least, before the vote of
+
+
+FORTY-FIRST CONGRESS. Szss. III. Cu. 62. 1871. 423
+
+the people shall be taken on the same, and provision shall be made in the People to vote act for the payment of the interest annually, as it shall accrue, by a tax thereon, and on levied for the purpose, or from other sources of revenue, which law y
+
+- providing for the payment of such interest by such tax shall be irre-
+
+pealable until such debt be paid: Provided, That the law levying the tax
+
+< shall be submitted to the people with the law authorizing the debt to be
+
+contracted.
+
+Src. 15. And be tt further enacted, That the legislative assembly shall _ No extra al- never grant or authorize extra compensation, fee, or allowance to any lowances, &e. to public officer, agent, servant, or contractor, after service has been ren- cer. P dered or a contract made, nor authorize the payment of any claim, or Certain pay. part thereof, hereafter created against the District under any contract mee not to be or agreement made, without express authority of law; and all such unauthorized agreements or contracts shall be null and void.
+
+Sec. 16. And be tt further enacted, That the District shall never pay, Credit of the assume, or become responsible for the debts or liabilities of, or in any District hot to be manner give, loan, or extend its credit to or in aid of any public or other ean SEs corporation, association, or individual.
+
+_ Sxo. 17. And be it further enacted, That the legislative assembly shall Special laws not pass special laws in any of the following cases, that is to say: For Poe tnt speak: _ granting divorces; regulating the practice in courts of justice; regulating fied cases. the jurisdiction or duties of justices of the peace, police magistrates, or constables; providing for changes of venue in civil or criminal cases, or swearing and impaneling jurors; remitting fines, penalties, or forfeitures ; the sale or mortgage of real estate belonging to minors or others under - disability ; changing the law of descent; increasing or decreasing the fees of public officers during the term for which said officers are elected _ or appointed ; granting to any corporation, association, or individual, any
+
+special or exclusive privilege, immunity, or franchise whatsoever. The legislative assembly shall have no power to release or extinguish, in whole Assembly to or in part, the indebtedness, liability, or obligation of any corporation or have no power to individual to the District or to any municipal corporation therein, nor mae’: ‘shall the legislative assembly have power to establish any bank of circu- lation, nor to authorize any company or individual to issue notes for cir- culation as money or currency.
+
+Sec. 18. And be ct further enacted, That the legislative power of the Legislative District shall extend to all rightful subjects of legislation within said Dis- power of the Dis” trict, consistent with the Constitution of the United States and the pro- what. visions of this act, subject, nevertheless, to all the restrictions and limita- tions imposed upon States by the tenth section of the first article of the Constitution of the United States ; but all acts of the legislative assembly All acts sub- shall at all times be subject to repeal or modification by the Congress of fecttorepeal, &o. the United States, and nothing herein shall be construed to deprive Con- yee gress of the power of legislation over said District in as ample manner as if this law had not been enacted. _ .
+
+Sec. 19. And be it further enacted, That no member of the legislative Members of as- assembly shall hold or be appointed to any office, which shall have been sembly not 0 created or the salary or emoluments of which shall have been increased offices, while he was a member, during the term for which he was appointed or
+
+elected, and for one year after the expiration of such term; and no per- Certain per- son holding any office of trust or profit under the government of the Ss not to be United States shall be a member of the legislative assembly. sembly.
+
+. Sec. 20. And be it further enacted, That the said legislative assembly Limit to power shall not have power to pass any ex post facto law, nor law impairing the of assembly. obligation of contracts, nor to tax the property of the United States, nor to tax the lands or other property of non-residents higher than the lands or other property of residents; nor shall lands or other property in said district be liable to a higher tax, in any one year, for all general objects, territorial and municipal, than two dollars on
+
+424 FORTY-FIRST CONGRESS. Sess. III. Cu, 62. 1871.
+
+every hundred dollars of the cash value thereof; but special taxes may be levied in particular sections, wards, or districts for their particular
+
+Borrowing _ local improvements; nor shall said territorial government have power to money or iss4I9B borrow money or issue stock OF bonds for any object whatever, unless
+
+" specially authorized by an act of the legislative assembly, passed by a vote of two thirds of the entire number of the members of each branch thereof, but said debt in no case to exceed five per centum of the assessed
+
+See § 14. value of the property of said District, unless authorized by a vote of the
+
+Ante, p. 422. people, as hereinafter [hereinbefore] provided.
+
+Certain prop- SEC. 21. And be tt further enacted, That the property of that portion erty not tobe of the District not included in the corporations of Washington or George- ree ios" town shall not be taxed for the purposes either of improving the streets,
+
+alleys, public squares, or other public property of the said cities, or either of them, nor for any other expenditure of a local nature, for the exclusive benefit of said cities, or either of them, nor for the payment of any debt heretofore contracted, or that may hereafter be contracted by either of said cities while remaining under a municipal government not coexten- sive with the District.
+
+Property in Sec. 22. And be tt further enacted, That the property within the cor- Georgetown and porate limits of Georgetown shall not be taxed for the payment of any
+
+gton not ’ . to be taved for debt heretofore or hereafter to be contracted by the corporation of Wash- certain purposes. ington, nor shall the property within the corporate limits of Washington be taxed for the payment of any debt heretofore or hereafter to be contracted by the corporation of Georgetown; and so long as said cities shall re- main under distinct municipal governments, the property within the cor- porate limits of either of said cities shall not be taxed for the local benefit of the other; nor shall said cities, or either of them, be taxed for the ex-
+
+Ronds and _—clusiv' benefit of the county outside of the limits thereof: Provided, That
+
+bridges. the legislative assembly may make appropriations for the repair of roads,
+
+or for the construction or repair of bridges outside the limits of said citics.
+
+Special: taxes.
+
+ets and Sec. 23. And be it further enacted, That it shall be the duty of said ¥% Jegislative assembly to maintain a system of free schools for the educa- tion of the youth of said District, and all moneys raised by general taxa- dion or arising from donations by Congress, or from other sources, except by bequest or devise, for school purposes, shall be appropriated for the equal benefit of all the youths of said District between certain ages, to be defined by law.
+
+Justices ofthe Src. 24. And be it further enacted, That the said legislative assembly Pee publion shall have power to provide for the appointment of as many justices of the peace and notaries public for said District as may be deemed neces- anf radiotion sary, to define their jurisdiction and prescribe their duties ; but justices of ° the peace shall not have jurisdiction of any controversy in which the title __ of land may be in dispute, or in which the debt or sum claimed shall omen? now in exceed one hundred dollars: Provided, however, That all justices of the tinue. peace and notaries public now in commission shall continue in office till their present commissions expire, unless sooner removed pursuant to
+
+existing laws. . . ,paaletal courts Suc. 25. And be tt further enacted, That the judicial courts of said main, “c- District shall remain as now organized until abolished or changed of wad jurisdic by act of Congress ; but such legislative assembly shall have power to tion. pass laws modifying the practice thereof, and conferring such additional jurisdiction as may be necessary to the due execution and enforcement of
+
+the laws of said District.
+
+pened of Sec. 26. And be tt further enacted, That there shall be appointed b- Appointment, the President of the United States, by and with the advice and consent powers and du- of the Senate, a board of health for said District, to consist of five per- . sons, whose duty it shall be to declare what shall be deemed nuisances
+
+injurious to health, and to provide for the removal thereof; to make and
