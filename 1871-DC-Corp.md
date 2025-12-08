@@ -237,3 +237,89 @@ the District ex- ed States in said District, except the public buildings, and th
 cep, every bo, which have been dedicated to the public use as parks and squares, at years, and return Jeast once in five years, and return thereof shall be made by the governor thereof made. to the President of the Senate and Speaker of the House of Represent- atives on the first day of the session of Congress held after such valuation shall be taken, and the aggregate of the valuation of private property in Valuation to said District, whenever made by the authority of the legislative assembly, be made b shall be reported to Congress by the governor: Provided, That all valua- who. tions of property belonging to the United States shall be made by such persons as the Secretary of the Interior shall appoint, and under such
 
 regulations as he shall prescribe.
+
+pre nluation of Sc. 36. And be it further enacted, That there shall be a valuation
+
+Bnked ‘states in taken in the District of Columbia of all real estate belonging to the Unit-
+
+the District ex- ed States in said District, except the public buildings, and the grounds
+
+cep, every bo, which have been dedicated to the public use as parks and squares, at years, and return Jeast once in five years, and return thereof shall be made by the governor thereof made. to the President of the Senate and Speaker of the House of Represent- atives on the first day of the session of Congress held after such valuation shall be taken, and the aggregate of the valuation of private property in Valuation to said District, whenever made by the authority of the legislative assembly, be made b shall be reported to Congress by the governor: Provided, That all valua- who. tions of property belonging to the United States shall be made by such persons as the Secretary of the Interior shall appoint, and under such
+
+regulations as he shall prescribe.
+
+Verne of pub- Sc. 37. And be it further enacted, That there shall be in the District
+
+of Columbia a board of public works, to consist. of the governor, who
+
+shall be president of said board; four persons, to be appointed by the Board of public President of the United States, by and with the advice and consent of Works,of whom the Senate, one of whom shall be a civil engineer, and the others citizens yeaneete p. 7. and residents of the District, having the qualifications of an elector therein; one of said board shall be a citizen and resident of Georgetown, and one of said board shall be a citizen and resident of the county out- side of the cities of Washington and Georgetown. They shall hold office — term of office; for the term of four years, unless sooner removed by the President of the United States. The board of public works shall have entire control of _ powers and and make all regulations which they shall deem necessary for keeping in duties.
+
+* : ets and repair the streets, avenues, alleys, and sewers of the city, and all other sewers. works which may be intrusted to their charge by the legislative assembly or Congress. They shall disburse upon their warrant all moneys appro- _pisbursement priated by the United States, or the District of Columbia, or collected of moneys. from property-holders, in pursuance of law, for the improvement of streets, avenues, alleys, and sewers, and roads and bridges, and shall assess in such manner as shall be prescribed by law, upon the property adjoining and to be specially benefited by the improvements authorized Betterments. ‘by law and made by them, a reasonable proportion of the cost of the im- provement,-not exceeding one third of such cost, which sum shall be collected as all other taxes are collected. They shall make all necessary private build- regulations respecting the construction of private buildings in the District ings. of Columbia, subject to the supervision of the legislative assembly. All contracts made by the said board of public works shall be in writing, and Contracts. shall be signed by the parties making the same, and a copy thereof shall be filed in the office of the secretary of the District; and said board of _ Limit to power public works shall have no power to make contracts to bind said District * contract to the payment of any sums of money except in pursuance of appropria- tions made by Jaw, and not until such appropriations shall have been made, All contracts made by said board in which any member of said board shall be personally interested shall be void, and no payment shall be made thereon by said District or any officers thereof. On or before the first Monday in November of each year, they shall submit to each Annual report. branch of the legislative assembly a report of their transactions during the preceding year, and also furnish duplicates of the same to the gov- ernor, to be by him laid before the President of the United States for transmission to the two houses of Congress; and shall be paid the sum Pay. of two thousand five hundred dollars each annually.
+
+Sec. 88. And be it further enacted, That the officers herein provided Officers a for, who shall be appointed by the President, by and with the advice and pointed by the consent of the Senate, shall be paid by the United States by appropria- paid by the Unit- tions to he made by law as hereinbefore provided; and all other officers od Stator of said District provided for by this act shall be paid by the District : er omen Provided, That no salary shall be paid to the governor as a member of Proviso. the board of public works in addition to his salary as governoy, nor shall any officer of the army appointed upon the board of public works receive any increase of pay for such service.
+
+Sec. 89. And be it further enacted, That if, at any election hereafter _ Penalty for il- held in the District of Columbia, any person shall knowingly personate iiBeal con and and vote, or attempt to vote, in the name of any other person, whether at elections. living, dead, or fictitious, or vote more than once at the same election for any candidate for the same office, or vote at a place where he may not be entitled to vote, or vote without having a lawful right to vote, or do any unlawful act to secure a right or opportunity to vote for himself or any other person, or by force, threats, menace, or intimidation, bribery, reward, or offer, or promise thereof, or otherwise unlawfully prevent any qualified voter of the District of Columbia from freely exercising the right of suffrage, or by any such means induce any voter to refuse to exercise such right, or compel or induce, by any such means or otherwise, any
+
+428 FORTY-FIRST CONGRESS. Sess. III. Ca. 62. 1871.
+
+Penalty for il- officer of any election in said District to receive a vote from a person not legal voting and Jegally qualified or entitled to vote; or interfere in any manner with any illegal conduct A frcer of said elections in the discharge of his duties; or by any unlawful
+
+means induce any officer of an election, or officer whose duty it is to as- certain, announce, or declare the result of any such election, or give or make any certificate, document, or evidence in relation thereto, to violate or refuse to comply with his duty, or any Jaw regulating the same; or knowingly and wilfully receive the vote of any person not entitled to vote, or refuse to receive the vote of any person entitled to vote; or aid, counsel, procure, or advise any such voter, person, or officer to do any act hereby made a crime, or to omit to do any duty the omission of which is hereby made-a crime, or attempt to do so, every such person shall be deemed guilty of a crime, and shall for such crime be liable to prosecu- tion in any court of the United States of competent. jurisdiction, and on conviction thereof shall be punished by a fine not exceeding five hundred dollars, or by imprisonment for a term not exceeding threé years, or both, in the discretion of the court, and shall pay the costs of prosecution.
+
+Charters of Src. 40. And be tt further enacted, That the charters of the cities of Washington and Washington and Georgetown: shall be repealed on and after the first pealerl from day of June, A. D. eighteen hundred and seventy-one, and all offices of June 1, 1871,and said corporations abolished at that date; the levy court of the District Oe ours of Columbia and all offices connected therewith shall be abolished on and
+
+Laws and or- after said first day of June, A. D. eighteen hundred and seventy-one; but dinances to bein gil laws and ordinances of said cities, respectively, and of said levy court,
+
+“m not inconsistent with this act, shall remain in full force until modified
+
+or repealed by Congress or the legislative assembly of said District; that
+
+Washington. portion of said District included within the present limits of the city of
+
+Washington shall continue to be known as the city of Washington ; and
+
+Georgetown that portion of said District included within the limits of the city of Georgetown shall continue to be known as the city of Georgetown ; and the legislative assembly shall have power to levy a special tax upon property, except the property of the government of the United Srates, within the city of Washington for the payment of the debts of said city ; and upon property, except the property of the government of the United States, within the limits of the city of Georgetown for the payment of the debts of said city ; and upon property, except the property of the gov- ernment of the United States, within said District not included within the
+
+limits of cither of said citiés to pay any debts owing by that portion of said levy aor District: Provided, That the charters of said cities severally, and the tinued for cer- powers of said levy court, shall be continued for the following purposes, to tain purposes. wit: For the collection of all sums of money due to said cities, respec- tively, or to said levy court; for the enforcement of all contracts made by said cities, respectively, or by said levy court, and all taxes, heretofore assessed, remaining unpaid; for the collection of all just claims against said cities, respectively, or against said levy court; for the enforcement of all legal contracts against said cities, respectively, or against said levy court, until the affairs of said cities, respectively, and of said levy court, shall have been fully closed; and no suit in favor of or against said cor- porations, or either of them, shall abate by reason of the passage of this act, but the same shall be prosecuted to final judgment as if this act had not been passed. me, election for Sno, 41. And be tt further enacted, That there shall be no election Georgetown holden for mayor or members of the common council of the city of prior to June 1, Georgetown prior to the first day of June, eighteen hundred and seventy- . one, but the present mayor and common council of said city shall hold anno taxes to be their offices until said first day of June next. No taxes for general nicipal authori. PU'poses shall hereafter be assessed by the municipal authorities of the ties. cities of Washington or Georgetown, or by said levy court. And upon the repeal of the charters of the cities of Washington and Georgetown,
+
+Special tax.
+
+Pending suits.
+
+FORTY-FIRST CONGRESS. Szss. III. Ca. 62, 63, 64,65. 1871. 429
+
+the District of Columbia be, and is hereby, declared to be the successor District of Oo of said corporations, and all the property of said corporations, and of M™bis te le ie the county of Washington, shall become vested in the said District of cities of Wasb- Columbia, and ali fines, penalties, costs, and forfeitures, which are now ington and &e by law made payable to said cities, respectively, or said levy court, shall Vices and be paid to said District of Columbia, and the salaries of the judge and costs.
+
+clerk of the police court, the compensation of thg deputy clerk and bailiffs
+
+of said police court, and of the marshall of the District of Columbia shall
+
+be paid by said District: Provided, That the moneys collected upon the Salaries of judgements of said police court, or so much thereof as may be necessary, judge and other shall be applied to the payment of the salaries of the judge and other cou officers of said court, and to the payment of the necessary expenses
+
+thereof, and any surplus remaining after paying the salaries, comp Surplus to be tion, and expenses aforesaid, shall be paid into the treasury of the District paid mt the
+
+at the end of every quarter. "y:
+
+APPROVED, February 21, 1871.
+
+CHAP. LXIIL — An Act to change the Times for holding the district and circutt Courtsof Feb. 21, 1871. the United States at Erie, Pennsylvania. <a
+
+Be it enacted by the Senate and House of Representatives of the United States of America tn Congress assembled, That from and after this date the Terms of Unit- July terms of the district and circuit courts of the United States in and ed States, courts for the western district of Pennsylvania, at Erie, shall be commenced at Brie 1 ™ and held on and after the third Monday of July in each year; and the January terms of said court at the same place shall be commenced and
+
+held at Erie, Pennsylvania, on and after the second Monday in January - of each year.
+
+APPROVED, February 21, 1871.
+
+CHAP. LXIV.— An Act to provide for the Apportionment of the Members of the legus- Feb. 21, 1871. lative Assembly of the Territory of Colorudo. TT
+
+Be it enacted by the Senate and House of Representatives of the United States of America in Congress assembled, That it shall be the duty of the Apportionment governor, chief justice, and United States attorney for the Territory of Col- of members of orado, on or before the first day of June next, to make an apportionment assembly of Col- of the members of the council and house of representatives of the said orado. Territory, among the several districts, for the election of members of the council and house of representatives, giving to each section of the ; Territory representation in ratio of its population, as near as may be, as apntio of popu- ascertained by the census taken by authority of the United States in " the year eighteen hundred and seventy.
+
+Src. 2. And be it further enacted, That it shall be the duty of said Official certifi- governor, chief justice, and United States attorney to make an official rte of appor- certificate showing the number of members of the council and house of " representatives the several districts of said Territory are entitled [to] as apportioned under the provisions of this act, and file said certificate in the office of the secretary of said Territory, on or before the first day of July next, and said apportionment so made shall be held tg be the proper and legal apportionment for the members of the next legislative assembly of the Territory of Colorado.
+
+Arrnoven, February 21, 1871.
+
+CHAP. LXV. — An Aet to repeal an Act of the Legislature of Wyoming Territory ap- Feb. 21, 1871. tioning said Territory for Members of the Counc and House of Representatives of the —tT ervitorial Legislature.
+
+Be it enacted by the Senate and House of Representatives of the United States of America in Congress assembled, That the act of the legis- Apportionment
+
+lature of the Territory of Wyoming, entitled “An act apportioning sei yoning Ter-
