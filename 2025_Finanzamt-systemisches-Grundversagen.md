@@ -33,7 +33,7 @@ Jahr         | Steuerklasse |  Kind
 
 ab 01/24      |    1    |      0,5
 bis heute     |   
-(FAGRM)       |                                    
+                             
 ---
 
 ab 03/23      |                 
