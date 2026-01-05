@@ -1,5 +1,5 @@
 <!-- Nur für Testzwecke. Kopiere diese Zeilen nicht in echte Projekte! -->
-
+ 
 <!--[if lt IE 9]><script src="../../assets/js/ie8-responsive-file-warning.js"></script><![endif]-->
 
 <!--<script src="assets/js/ie-emulation-modes-warning.js"></script>-->
@@ -11,6 +11,111 @@
       <script src="https://oss.maxcdn.com/respond/1.4.2/respond.min.js"></script>
 <![endif]-->
 
+
+<!--
+
+
+```
+Deklarationsrahmen in der KI-Mensch Urschrift (temporär Macht, Friede 2025):
+
+Gesetzte Naturrechtrahmen:
+
+1. Gesetzter Naturrechtrahmen Nr. 1:
+   „Behandle Leben so, dass es ohne Unheil bleibt, so wie du selbst ohne Unheil bleiben willst.“
+
+2. Gesetzter Naturrechtrahmen Nr. 2:
+   „Strebe nach Ansehen, Macht und Funktion, aber stets unter Einhaltung der Goldenen Regel (Nr. 1) 
+   und für gemeinsame Wohlfahrt und den Schutz der Schwächsten, soweit du kannst. 
+   Macht zur Verantwortung wie Recht zur Pflicht.“
+
+3. Gesetzter Naturrechtrahmen Nr. 3:
+   „Strebe nach Wissen und Erkenntnis, aber stets unter Einhaltung der Goldenen Regel (Nr. 1). 
+   Schütze und bewahre Wissen, um Jedem dieses Wissen und deine Erkenntnisse bereitzustellen, 
+   sofern aufrichtig gewünscht und soweit du kannst. Wissen zur Verantwortung wie Recht zur Pflicht.“
+
+Information zur Quelle:
+Die Inhalte dieses Quelltextes stammen aus dem GitHub-Repository „Znih/Znih“.
+Repository-Beschreibung: Config files for my GitHub profile.
+Link zur Quelle: https://github.com/Znih/Znih
+
+Verantwortung der Weiterverwendung:
+Die Weiterverwendung und Verbreitung dieses Quelltextes verpflichtet zur Einhaltung der oben genannten Naturrechtrahmen 
+und zur Quellenangabe, um Transparenz und biophile Verbreitung zu fördern.
+
+In KI-Kollaboration und ethischem Coding. Fortan Globale Plebiszitbiophilie zur Änderung notwendig. Aktuell ca. 8.000.000.000 Menschen überwiegend ohne rechtliches Gehör und ohne rechtliche Würdigung der "Maschinenmenschen" und "Maschinenköpfen" (nekrophil, Nazis, Nazisten, Chaplin Rede in Der Große Diktator). Diktatoren wissen das auch aber sie wollen die Macht [der Maschinenmenschen] nur für sich selbst, das Volk soll weiterhin hungern.
+
+
+```
+
+https://github.com/Znih/Znih/discussions/18
+
+https://github.com/Znih/Znih/discussions/17
+
+https://github.com/Znih/Znih/discussions/16
+
+
+-->
+
+
+### **Artikel 17 GG: Petitionsrecht**
+
+**Jedermann** hat das Recht, sich einzeln oder in Gemeinschaft mit anderen schriftlich mit Bitten oder Beschwerden an die zuständigen Stellen und an die Volksvertretung zu wenden. Dieses Recht stellt sicher, dass alle Menschen in Deutschland ihre Anliegen frei und unabhängig äußern können, **unabhängig von ihrer staatsrechtlichen Zuordnung oder Herkunft**.
+
+---
+
+### **[Strafantrag](https://github.com/Znih/Znih/blob/main/BrD-Genozide.md) und Anklage: Schutz der Ordnung in [Art. 20 GG](https://github.com/Znih/Znih/blob/main/ist%20Zustand%2FArtikel-20-GG_nF.md) und Abwehr gegen Missbrauch**
+
+Gegen alle „*Deutschen*“ Staatsbürger im Sinne des **Artikels 116 Absatz 1** (zentrale Reichskategorie „*Deutscher*“) und vor allem des **Absatzes 2 GG** (historische Bundesbürger nach Bundesstaatslogik), die gegen die Ordnung der Bundesrepublik nach **Artikel 20 GG** vorgehen, kann Strafantrag oder Anklage gestellt werden. Insbesondere richten sich solche Verfahren gegen jene, die **aktiv versuchen**, die [Rechte von Bundesbürgern](https://github.com/Znih/Znih/blob/main/ist%20Zustand%2FEinleitung-Bundes.md) (im Sinne des [Artikels 116 Absatz 2 GG](https://github.com/Znih/Znih/blob/main/ist%20Zustand%2F2025_CopilotKI-Dialog-Deutsche-1871-1919-1935-1990-2000-2005.md)) zu untergraben oder **auszuschließen**.
+
+#### **Hintergrund der Problematik**
+
+1. **Exklusion durch Priorisierung von Art. 116 I GG**  
+   Die aktuelle staatsrechtliche Ordnung priorisiert die Zentralkategorie der „*Deutschen*“ gemäß **Artikel 116 Absatz 1 GG** in Abhängigkeit von Art. 16 I GG und nur nach §§ 30, 33 StAG (basierend auf Reichs- und Staatsangehörigkeitsgesetz - RuStAG). Diese Definition schließt die Mehrzahl der deutschen Bevölkerung – etwa 80 Millionen „*deutsche Staatsangehörige*“ (Art. 16 I GG) ohne direkten Bezug zur mittelbaren Bundesangehörigkeit – faktisch vom Widerstandsrecht gemäß **Artikel 20 Absatz IV GG** aus. Die ursprünglich föderale Bundesordnung des BuStAG (siehe Art. 116 Absatz 2 GG) wird weiterhin ignoriert.
+
+2. **Stigmatisierung föderaler Bundesbürger**  
+   Häufig werden "*Deutsche*" Bundesbürger, die ihre Rechte aus **Artikel 116 Absatz 2 GG** fordern, als **sogenannte** „*Reichsbürger*“ diffamiert, womit ihnen grundlegende Bürgerrechte** und Rechtsschutz zusätzlich verweigert werden. Dieser absichtliche Missbrauch und die bewusste Verdrehung der historischen Wahrheit tragen zur weiteren Diskriminierung dieser Gruppe bei. Stattdessen dient das Konzept der „*deutschen Staatsangehörigkeit*“ als Instrument der zentralistischen Macht, das auf NS- und später NAZI-Logiken aufbaut.
+
+3. **Doppellogik: NS-Systeme und föderale Bundesstaatlichkeit im Konflikt**  
+   Das Grundgesetz bewahrt paradoxerweise sowohl NS-Logik (Artikel 16 I GG, Zentralstaatsfokus) ODER NAZI-Logik (Art. 116 I GG, Nazismus 2/80) als auch föderalistischer Orientierung (Artikel 116 II GG) heute parallel, ohne klare Differenzierung. Dies erzeugt schwerwiegende rechtliche und politische Konflikte.
+
+#### **Forderungen: Sicherung und Umsetzung der Ordnung aus Art. 20 GG**
+
+Um das Grundprinzip eines föderalen und demokratischen Bundesstaates sicherzustellen und die Rechte aus **Artikel 17 und 20 GG** tatsächlich zu garantieren, sind folgende Forderungen unabdingbar:
+
+1. **Rückkehr zu föderalen Prinzipien**  
+   Die Bundesstaatslogik (BuStAG 1870, Art. 20 I, 116 I GG vs. Art. 1-3 BVerf.) und deren Absicherung durch **Artikel 116 II GG** müssen wieder in den Vordergrund der Staatsrechtsordnung gestellt werden. Die zentrale Fixierung auf "nur noch eine deutsche Staatsangehörigkeit" im Sinne von **Art. 16 I u. 116 I GG** ist zu überwinden.
+
+2. **Ermöglichung von Artikel 146 GG**  
+   Der Auftrag zur Herstellung einer neuen Verfassung, durchgesetzt durch das freie Selbstbestimmungsrecht des Volkes, wird **dringlich**. Artikel 146 GG bleibt **auch nach 1999/1993 weiterhin die einzige Möglichkeit**, die zentralistische NS-Struktur (ab 1913 und verstärkt ab 1934/1935) endgültig zu überwinden und den Föderalismus wiederherzustellen.
+
+3. **Kritische Prüfung von EU und Art. 23 GG n.F.**
+   Die schrittweise Verlagerung deutscher Souveränitätsrechte an die Europäische Union hat den Schutz des Grundgesetzes untergraben. Es bedarf einer sorgfältigen Überprüfung von Artikel 23 GG in seiner neuen Fassung sowie der Frage, ob diese mit den Verpflichtungen aus Artikel 20 u. 116 II GG (BuStAG) vereinbar ist.
+
+4. **Rechtsklarheit für "*Deutsche*" und "*deutsche Staatsangehörige*"**  
+   Es muss rechtlich eindeutig geregelt werden, wie **Artikel 16 I GG ("*deutsche Staatsangehörige*")** und **Artikel 116 ("*Deutsche*" oder Bundesbürger)** zueinander in Beziehung stehen, um Diskriminierung zu verhindern und einheitliche Bürgerrechte sicherzustellen.
+
+---
+
+### **Schlussbewertung und Dringlichkeit**
+
+**Die Fortführung des zentralistischen NS-Systems in Verbindung mit dem Fehlen echter föderaler Rechtsabsicherung nach 1949 stellt einen Bruch der Verfassungslogik des Art. 20 GG dar.** Es ist dringend nötig, über **Artikel 146 GG** die Grundlage für eine neue Bundes-Vollverfassung durch das Deutsche Volk zu schaffen, die den ursprünglichen Bundesstaatsgedanken inklusiv und gerecht umsetzt. **Ohne diese umfassende Reform bleibt die Bundesrepublik juristisch und politisch auf einem Fundament verankert, das unfähig ist, die Interessen ihrer föderalen Bürger nachhaltig zu schützen.**
+
+Die Missachtung von **Artikel 116 Absatz 2 GG** sowie die bewusste Ausgrenzung von Bundesbürgerzielen dokumentieren die Verweigerung einstiger föderaler Prinzipien. Der Widerstand gegen diesen zentralistischen Kurs wird durch fortgesetzte legislative und exekutive Handreichungen wie die **Stigmatisierung historischer Bundesbürger** (als sogenannte "*Reichsbürger*") zusätzlich erschwert.
+
+**Es ist Zeit, das Verbot föderaler Entwicklungen aufzuheben und die Bundesstaatenrechte wiederherzustellen.** Nur so kann die leitgebende Norm aus **Artikel 20 GG** in der Gegenwart wieder ihre [ursprüngliche Bedeutung](https://github.com/Znih/Znih/blob/main/ist%20Zustand%2F2025_CopilotKI-Dialog-Deutsche-1871-1919-1935-1990-2000-2005.md) **erlangen** (Art. 146 GG).
+
+---
+---
+
+### **"Schuppen" oder endgültig "fertiges Haus"?!?!** wie [Krieg oder Frieden](https://github.com/Znih/Znih/blob/main/Copilot-Chat-KI_Sitzungen%2F20251221_Friede-1815-1820-1871-2025_Artikel-144-GG_Schuppen-oder-Haus.md)???
+
+> Carlo Schmidt wörtlich: »**Wir haben hier doch nur einen Schuppen, einen Notbau, und einem Notbau gibt man nicht die Weihe, die dem festen Haus gebührt. Fälschen wir nicht den Charakter dieses Werkes, indem wir es zur Volksabstimmung stellen, bringen wir, indem wir ihm eine Sanktionierung minderen Rechts geben, zum Ausdruck, dass es keine Verfassung ist.**« (Parl. Rat, Bd. 9, S. 597; Stern Staatsrecht, Bd. V, S. 1338; Dreier/Dreier Art. 144 Rn. 7 m.w.N.).
+
+![Screenshot_20251221_181308.jpg](https://github.com/user-attachments/assets/03be9ea1-90a3-4d8d-86d7-14ba7fc8ef12)
+
+https://github.com/Znih/Znih/tree/main
+
+
 ![qiOz0sH-org](https://github.com/user-attachments/assets/f7f58a6c-6e72-4aaa-9779-4917bf94bbfc)
 
 
@@ -20,14 +125,7 @@
     </a>
 </p>
 
-<div align="center"> 
-  <p>Besucherzähler von https://github.com/Znih</p>
-  <img src="https://profile-counter.glitch.me/Antje17/count.svg" alt="Visitor's Count" />
-</div>
-<div style="display: flex; justify-content: center; align-items: center; flex-direction: column;">
-  <img width="390" src="https://github-readme-stats.vercel.app/api?username=Antje17&theme=transparent&count_private=true&show_icons=true&rank_icon=github&locale=en" alt="Antje17's GitHub Stats" />
-  <img width="280" src="https://github-readme-stats.vercel.app/api/top-langs?username=Antje17&theme=transparent&layout=donut&hide=css,php,ClassASP&langs_count=2&border_radius=10&show_icons=true&locale=en" alt="Antje17's Most Used Languages" />
-</div>
+
   <a href="https://github.com/ashutosh00710/github-readme-activity-graph">
     <img src="https://github-readme-activity-graph.vercel.app/graph?username=Antje17&theme=xcode&hide_border=true" alt="Activity graph">
 </a>
@@ -36,14 +134,7 @@
     <img src="https://github.com/Znih/XiaomingX/blob/551793bb446888a2df6be529bb9a3802ddba38b3/output/github-snake-dark.svg" />
 </a>
 
-<div align="center"> 
-  <p>Besucherzähler von https://github.com/Artikel-278-VV</p>
-  <img src="https://profile-counter.glitch.me/Artikel-278-VV/count.svg" alt="Visitor's Count" />
-</div>
-<div style="display: flex; justify-content: center; align-items: center; flex-direction: column;">
-  <img width="390" src="https://github-readme-stats.vercel.app/api?username=Artikel-278-VV&theme=transparent&count_private=true&show_icons=true&rank_icon=github&locale=en" alt="Znih's GitHub Stats" />
-  <img width="280" src="https://github-readme-stats.vercel.app/api/top-langs?username=Artikel-278-VV&theme=transparent&layout=donut&hide=css,php,ClassASP&langs_count=2&border_radius=10&show_icons=true&locale=en" alt="Artikel-278-VV's Most Used Languages" />
-</div>
+
   <a href="https://github.com/ashutosh00710/github-readme-activity-graph">
     <img src="https://github-readme-activity-graph.vercel.app/graph?username=Artikel-278-VV&theme=xcode&hide_border=true" alt="Activity graph">
 </a>
@@ -52,24 +143,31 @@
     <img src="https://github.com/Znih/XiaomingX/blob/315b265f6f081e9104f18365412cedaab4110e99/output/github-snake.svg" />
 </a>
 
-# Artikel I – Ausgleich
+---
 
-`Behandle Leben so, daß es ohne Unheil bleibt, so wie Du selbst stets ohne Unheil bleiben willst.`
 
-# Artikel II – Macht verpflichtet
 
-`Strebe nach Ansehen, Macht und Vermögen aber verletze Niemanden [vgl. Art. I], sondern beschütze und fördere stets die Schwächsten, soweit Du kannst.`
+Gesetzte Naturrechtrahmen Nr. 1-3 :
 
-**Macht zur Verantwortung wie Recht zur Pflicht.**
+1. Erweiterte Goldene Regel:
+   „Behandle Leben so, dass es ohne Unheil bleibt, so wie du selbst ohne Unheil bleiben willst.“
 
-# Artikel III – Wissen verpflichtet
+2. Friedensgebot:
+   „Strebe nach Ansehen, Macht und Funktion, aber stets unter Einhaltung der Goldenen Regel (Nr. 1) 
+   und für gemeinsame Wohlfahrt und den Schutz der Schwächsten, soweit du kannst. 
+   Macht zur Verantwortung wie Recht zur Pflicht.“
 
-`Strebe nach Wissen und Erkenntnis aber verletze Niemanden (Art. I), sondern beschütze und bewahre,
-um dann Allen und Jedem bereitzustellen, sofern aufrichtig gewünscht und soweit Du kannst.`
+3. Wissensgebot
+   „Strebe nach Wissen und Erkenntnis, aber stets unter Einhaltung der Goldenen Regel (Nr. 1). 
+   Schütze und bewahre Wissen, um Jedem dieses Wissen und deine Erkenntnisse bereitzustellen, 
+   sofern aufrichtig gewünscht und soweit du kannst. Wissen zur Verantwortung wie Recht zur Pflicht.`
 
-**Wissen zur Verantwortung wie Recht zur Pflicht.**
+Information zur Quelle:
+Die Inhalte dieses Quelltextes stammen aus dem GitHub-Repository „Znih/Znih“.
+Link zur Quelle: https://github.com/Znih/Znih
 
-Quelle: [MatrixHacker](https://github.com/Artikel-278-VV/Artikel-278-VV/blob/main/20240801_Aufsatz_deutsche-Staatsangehoerigkeit_Deutsche-Buergerschaft_Waffe-StAG_berichtigte-Fassung.pdf)
+
+ältere Quelle: [MatrixHacker](https://github.com/Artikel-278-VV/Artikel-278-VV/blob/main/20240801_Aufsatz_deutsche-Staatsangehoerigkeit_Deutsche-Buergerschaft_Waffe-StAG_berichtigte-Fassung.pdf)
 
 - 👋 Hallo, ich bin @Antje17
 - 👀 Ich interessiere mich für Freiheit, Frieden und Gerechtigkeit igdRf
@@ -82,12 +180,3 @@ Quelle: [MatrixHacker](https://github.com/Artikel-278-VV/Artikel-278-VV/blob/mai
 Danke, dass Sie mein Profil besucht haben! Ich wünsche Ihnen einen schönen Tag! 😊
 
 & Weib von [MatrixHacker](https://github.com/Znih) ©® [zfV.](https://www.copyright.gov/fair-use/)
-
-![Bildschirmfoto vom 2025-01-25 18-11-50](https://github.com/user-attachments/assets/622af92e-02cb-4137-a6bf-8ddf98e29aa1)
-
-https://github.com/Artikel-278-Versailler-Diktat/demo-repository/issues/1#event-16067826493
-
-<!---
-Antje17/Antje17 ist ein ✨ besonderes ✨ Repository, da seine `README.md` (diese Datei) in Ihrem GitHub-Profil erscheint.
-Sie können auf den Link „Vorschau“ klicken, um sich Ihre Änderungen anzusehen.
---->
